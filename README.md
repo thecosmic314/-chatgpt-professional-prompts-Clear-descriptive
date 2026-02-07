@@ -1,0 +1,1 @@
+# -chatgpt-professional-prompts-Clear-descriptive
